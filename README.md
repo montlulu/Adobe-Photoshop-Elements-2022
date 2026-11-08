@@ -1,0 +1,1 @@
+# Adobe-Photoshop-Elements-2022
